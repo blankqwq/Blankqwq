@@ -3,7 +3,6 @@
 - 👯 I’m looking to collaborate on create framework
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about framework
-- 📫 How to reach me: 1136589038@qq.com
 - ⚡ Fun fact: cooking
 
 
